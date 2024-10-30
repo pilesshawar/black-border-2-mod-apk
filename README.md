@@ -6,7 +6,7 @@
 
 Black Border 2 Mod APK is a border control simulation game where players assume the role of a border officer. In this game, you’re responsible for screening travelers and detecting illegal activities like smuggling. Designed as an immersive simulation, it challenges players with real-life scenarios in a dynamic story, making each session thrilling and unique.
 
->Download Here: https://modhello.com
+>Download Here: https://modhello.com/black-border-2/
 
 ---
 
